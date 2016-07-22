@@ -12,4 +12,6 @@ So far my team is small - just 1 person, but I'm willing to work with you!
 ## Setup & Requirements
 This project requires a computer and internet.
 
-this is a difference
+how about the paper writing
+
+
